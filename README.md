@@ -2,7 +2,7 @@
 
 
 
-**下载地址：[木雨电视](https://wp.wsmywlkj.top/f/1oWsY/%E6%9C%A8%E9%9B%A8%E7%94%B5%E8%A7%86.7z)**
+**下载地址：[木雨电视](https://github.com/ALIT8569/MuYuLiveTV/releases/tag/%E6%9C%80%E6%96%B0%E7%89%88%E6%9C%AC)**
 
 
 
