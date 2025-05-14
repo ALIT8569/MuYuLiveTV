@@ -32,6 +32,10 @@
 **赞助名单**：[点击查看](https://github.com/ALIT8569/MuYuLiveTV/blob/main/%E8%B5%9E%E5%8A%A9%E5%90%8D%E5%8D%95%EF%BC%88%E6%8C%89%E6%97%B6%E9%97%B4%E6%8E%92%E5%BA%8F%EF%BC%89.png)
 
 
+2025/05/07更新：
+
+-新增广东，湖南地区频道
+
 
 2025/05/07更新：
 
