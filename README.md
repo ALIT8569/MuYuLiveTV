@@ -44,7 +44,8 @@
 **[赞助作者](https://github.com/ALIT8569/MuYuLiveTV/blob/642f56eeca14db997900a42a1f8af812eff7efbe/%E8%B5%9E%E5%8A%A9%E4%BD%9C%E8%80%85.md)**
 
 
-![赞助名单（按时间排序）](https://github.com/user-attachments/assets/a96c17d7-93b2-4cac-83fc-96d985769676)
+![赞助名单（按时间排序）](https://github.com/user-attachments/assets/e2712e19-3c71-4d53-9b0f-196ac441a0d1)
+)
 
 ------
 
